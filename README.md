@@ -1,7 +1,7 @@
 _Under Construction_  
 _开摆！啥时候有心情再来写吧_
 - 👋 Hi, I’m @CharlesHim
-- 👀 干啥啥不行，整活第一名
+- 👀 干啥啥不行，摆烂第一名
 - 🌱 除了学校的课本啥都在学
 - 💞️ 真的有人愿意和熬夜波比一块摆烂吗
 - 📫 charleshim@qq.com
