@@ -4,7 +4,7 @@ _开摆！啥时候有心情再来写吧_
 - 👀 干啥啥不行，摆烂第一名
 - 🌱 除了学校的课本啥都在学
 - 💞️ 真的有人愿意和熬夜波比一块摆烂吗
-- 📫 charleshim@qq.com
+- 📫 charleshim@foxmail.com
 
 <!---
 CharlesHim/CharlesHim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
